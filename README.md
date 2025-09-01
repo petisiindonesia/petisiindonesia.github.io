@@ -1,7 +1,5 @@
 # petisiindonesia.github.io
 
-Kerja cerdas, bukan kerja keras
+Just kidding!!, waspada selalu
 
-orang jahat berawal dari orang baik yang tersakiti
-
-jawacoders
+jangan kepo ah :)
